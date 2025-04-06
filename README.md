@@ -1,4 +1,4 @@
-**Hi Guys , i'M /LoKn**
+**Hi Guys , Im /LoKn**
 ---
 - Welcome To The Other **World** 👀 .
 
